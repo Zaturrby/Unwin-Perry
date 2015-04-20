@@ -11,7 +11,7 @@ In deze passage noemt hij veel van de concepten die in zijn artikel centraal sta
 
 ## Kwaliteiten van de tekst
 
-Allereerst is de tekst aansprekend. Hoewel het overduidelijk links en licht activistisch is geschreven, is de tekst toch nog toegankelijk voor rechts georiënteerde lezers. Zijn argumentatie is goed verdeeld over stadsplanning en kunst en hun verhouding tot de samenleving en traditie. De positionering van rationele stadsplanner als kunstenaar terwijl er tegelijkertijd gekeken wordt de verhouding tussen kunstenaar en samenleving creëert een interessant spel dat later nog veel verkend zal worden. 
+Allereerst is de tekst aansprekend, maar hoewel het overduidelijk links en licht activistisch is geschreven, is de tekst toch nog toegankelijk voor rechts georiënteerde lezers. Zijn argumentatie is goed verdeeld over stadsplanning en kunst en hun verhouding tot de samenleving en traditie. De positionering van rationele stadsplanner als kunstenaar terwijl er tegelijkertijd gekeken wordt de verhouding tussen kunstenaar en samenleving creëert een interessant spel dat later nog veel verkend zal worden. 
 
 ## Zwakkere kanten van de tekst
 
