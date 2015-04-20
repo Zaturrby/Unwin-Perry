@@ -4,6 +4,7 @@
 
 Pagina 9:
 > All of these practical advantages, and much more, may be secured by the exercise of town planning; but above all, we need to infuse the power of the artist into our work. The artist is not content with the least that will do; his desire is for the best, the utmost he can achieve. It is the small margin which makes all the difference between a thing scamped and a thing well done to which attention must be directed. From this margin well doing springs. 
+
 > In desiring powers for town planning our town communities are seeking to be able to express their needs, their life, and their aspirations in the outward form of their towns, seeking, as it were, freedom to become the artists of their own cities, portraying on a gigantic canvas the expression of their life.  
 
 In deze passage noemt hij veel van de concepten die in zijn artikel centraal staan. Hij legt de waarde van stadsplanning uit en de rol van de kunstenaar daarbinnen. Maar het draait echter niet alleen om de kunstenaar, ook de gemeenschap heeft een belangrijke rol. Later kleed hij de verhouding die de kunstenaar en de gemeenschap met elkaar hebben verder in met een parafrase van William Morris.
