@@ -21,7 +21,7 @@ Unwin probeert in de tekst stadsplanning als oplossing van veel problemen te pos
 
 ## Cruciale passage
 
-De “Neighborhood-unit Principles” lijken de beste keus omdat daarin de uitvoering van Perry studie het beste tot uiting komt. De conceptuele lading wordt echter beter gedekt door de uitspraak van Harrison.
+De 6 “Neighborhood-unit Principles” lijken de beste keus omdat daarin de uitvoering van Perry studie het beste tot uiting komt. De conceptuele lading wordt echter beter gedekt door de uitspraak van Harrison.
 
 Pagina 24:
 > The essence of Mr. Perry’s report, …, is a scheme or principle of arrangement of the physical elements of a residential district which he calls the “neighborhood unit” and which brings into harmonious relation the various conditions that have been observed to favor a safe and satisfying community life. 
