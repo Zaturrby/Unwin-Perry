@@ -99,7 +99,7 @@ FOUR heads of facilities which are strictly local (universal):
 
 ## Vraag 3
 
-**Wat vonden jullie het meest interessante aan de tekst: waarom denken jullie dat hij veel effect/bekendheid heeft gekregen?** 
+**Wat vonden jullie het meest interessante aan de tekst: waarom denken jullie dat hij veel effect/bekendheid heeft gekregen? ** 
 
 De teksten van Perry uiten de concrete plannen voor steden
 Simplicity of plans 
