@@ -27,7 +27,7 @@ Pagina 24:
 
 ## Kwaliteiten van de tekst
 
-De tekst is heel uitvoerend georiënteerd, deze tekst geeft zeer duidelijke handvaten, zaken die zeker aandacht verdienen. Vooral het pleidooi tegen verkeersdoden, dat leeft nog steeds zeer. 
+De tekst is heel uitvoerend georiënteerd en geeft zeer duidelijke handvaten, zaken die zeker aandacht verdienen. Vooral het pleidooi tegen verkeersdoden, dat leeft nog steeds zeer. 
 
 ## Zwakkere kanten van de tekst
 
