@@ -121,7 +121,7 @@ Pagina 33:
 Pagina 34:  
 > Neighborhood-unit Principles. (whole setup)
 
-## Belangrijkste passage
+## Cruciale passage
 
 De “Neighborhood-unit Principles” lijken de beste keus omdat daarin de uitvoering van Perry studie tot uiting komt. De conceptuele lading wordt echter beter gedekt door de uitspraak van Harrison.
 
@@ -135,9 +135,6 @@ De tekst is heel uitvoerend georiënteerd, deze tekst geeft zeer duidelijke hand
 ## Zwakkere kanten van de tekst
 
 Conceptueel is de tekst redelijk smal. De tekst blijft erg dicht bij het onderzoek en zoekt zelden verbinding met een breder perspectief of discour. Het lijkt alsof de introductie door Harrison tracht deze lacune iets of wat af te vangen. 
-
-
-
 
 
 # Discussiepunten
