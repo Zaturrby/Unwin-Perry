@@ -35,6 +35,6 @@ Conceptueel is de tekst redelijk smal. De tekst blijft erg dicht bij het onderzo
 
 # Discussiepunten
 
-1. Conceptuele karakter Unwin tekst tegenover het meer pragmatische van Perry’s tekst.
-2. Perry’s optiek van de stadsplanner als ontwerper van een gemeenschap tegenover Unwin’s perspectief van de gemeenschap als mede-ontwerper van de stad. 
+1. Het conceptuele karakter Unwin’s tekst tegenover het meer pragmatische van Perry’s tekst.
+2. Perry’s optiek van de stadsplanner als ontwerper van de gemeenschap tegenover Unwin’s perspectief van de gemeenschap als mede-ontwerper van de stad. 
 3. De rol van de stadsplanner als rationeel denkend mens of als kunstenaar.
