@@ -37,7 +37,7 @@
 
 ## Vraag 3
 
-**Wat vonden jullie het meest interessante aan de tekst: waarom denken jullie dat hij veel effect/bekendheid heeft gekregen? **
+**Wat vonden jullie het meest interessante aan de tekst: waarom denken jullie dat hij veel effect/bekendheid heeft gekregen?**
 
 Een interessant stuk in de tekst is aan het begin, waarin hij een dergelijke ironie toont voor de huidige stedenbouw en architectuur. ‘Het is nog niet eens zo slecht gedaan’. 
 
